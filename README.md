@@ -2,7 +2,7 @@ To Download Or Read Greek Lessons
 
 Visit Link Bellow
 
-[📖 [Read Here]](https://rebrand.ly/61686012-greek-lessons)
+[📖 [Read Here]](https://eibooknade.web.app/alsobitts/61686012-greek-lessons)
 
 Here You Can Download Or Read Free Books
 
